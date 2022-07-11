@@ -1,0 +1,6 @@
+- 👋 Hi, I’m professional data scientist.
+- 👀 I’m interested in full time remote job.
+- 📫 How to reach me .
+-   Skype : live:.cid.bee818d43b82abf6
+-   Telegram  : @Elite1004
+-   Email : amirdbestdev@gmail.com
